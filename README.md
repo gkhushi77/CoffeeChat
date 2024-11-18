@@ -70,4 +70,4 @@ If you have any questions or suggestions, feel free to reach out!
 
 Email: **khushigoyal7703@gmail.com**
 
-LinkedIn: **[khushi-goyal-74010725a**](https://www.linkedin.com/in/khushi-goyal-74010725a/)**
+LinkedIn: **[khushi-goyal-74010725a](https://www.linkedin.com/in/khushi-goyal-74010725a/)**
